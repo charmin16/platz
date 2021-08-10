@@ -1,0 +1,1 @@
+Our deepest fear is not because we are inadequate; our deepest fear is that we powerful beyond measures.
